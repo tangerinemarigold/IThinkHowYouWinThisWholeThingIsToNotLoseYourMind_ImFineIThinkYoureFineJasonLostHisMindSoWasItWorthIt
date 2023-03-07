@@ -7,3 +7,5 @@ literally whacked out on poo brain https://www.youtube.com/watch?v=emVUkzjykro
 
 
 dont worry about me -- some very interesting new projects at work today/this week. very busy but it's fun and fulfilling. we have a huge like extremely huge wgs/rna seq project that im on. ive never seen so much data
+
+whats the story behind chordjs, what were you doing at May 17, 2017 @ 9:44pm at night!! Where were you, what were you doing lol
