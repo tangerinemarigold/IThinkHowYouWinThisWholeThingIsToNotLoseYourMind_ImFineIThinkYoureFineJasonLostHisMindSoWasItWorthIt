@@ -16,3 +16,6 @@ ohh i just read this and i think i sound kind of mean about javascript :( you kn
 
 
 did you know that my coworker use to look right at jason and purposely call it a 'jason file' even though it's pronounced JSON (jay-son) file. LOL we thought he was a complete dork when we were there, i have no idea why anyone took him seriously. there was this other time my coworker said the screen resolution on the idea factory monitors was really low and he sat there and didn't respond at all. he just took it all in. i literally thought he was a psychopath after that. dude is whacked out on poo brain.
+
+
+jason had this look that i saw a couple of times that he would give to paul, the "im going to murder you if you keep talking to me" look. paul is pretty expendable to jason, always was.
