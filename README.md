@@ -19,3 +19,6 @@ did you know that my coworker use to look right at jason and purposely call it a
 
 
 jason had this look that i saw a couple of times that he would give to paul, the "im going to murder you if you keep talking to me" look. paul is pretty expendable to jason, always was.
+
+
+im bored :(
