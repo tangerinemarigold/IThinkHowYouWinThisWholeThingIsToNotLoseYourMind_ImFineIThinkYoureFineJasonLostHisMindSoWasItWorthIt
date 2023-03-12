@@ -29,3 +29,5 @@ i forgot to mention, we are going to istanbul this summer, most likely bc my dad
 do you how many weddings ive been to in the past 6 years, a lot, it's always someone elses btw >:|
 
 it's difficult for me to watch a movie or anything, because this whole thing is so interesting everything else pales in comparison. even to some of the best literature, to which i find myself saying, "been there, done that". this whole thing is a little bit of everything all at the same time, which makes sense because i threw almost everything i had at it.
+
+btw if yo ass keeps picking up chicks on interviews and you cheat on me, im soooo done with you. >:|
