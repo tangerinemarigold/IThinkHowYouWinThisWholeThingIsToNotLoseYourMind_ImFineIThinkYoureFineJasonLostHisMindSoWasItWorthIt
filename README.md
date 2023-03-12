@@ -34,3 +34,4 @@ btw if yo ass keeps picking up chicks on interviews and you cheat on me, im sooo
 
 not trying to be mean with the prenup, its the most responsible thing to do, BUT i do have a little bit of an inheritance from my parents and they want it to be used for something good like a house etc./charity, bc its from my grandparents. just an fyi.
 
+what were you doing all last year? im trying so hard to not write every thought i have here, call me back. and im bored. ill tell you everything and every single thing i do all day.
