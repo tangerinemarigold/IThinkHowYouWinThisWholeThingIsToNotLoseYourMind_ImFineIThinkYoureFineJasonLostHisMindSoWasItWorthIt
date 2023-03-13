@@ -36,4 +36,11 @@ not trying to be mean with the prenup, its the most responsible thing to do, BUT
 
 what were you doing all last year? im trying so hard to not write every thought i have here, call me back. and im bored. ill tell you everything and every single thing i do all day.
 
+i was laughing at my jokes while i was running errands over the weekend, alone in my car LOL
+> Here’s an idea! You can get on the apps (Tinder, Grindr, etc. whatever you want, no judgement) and say you’re a Stanford Professor and that you have a huge Paul Wang.
+> No one’s going to fact check you on the apps though, so go for it.
+how did i even come up with this. it just comes to me, i cant expain it. hey, i might not have an actual audience but im making myself laugh so it must be alright, i have no idea. this dude is such a loser i have no words any more for jason. but i do have more words, dont worry.
+
+
+
 done with work, more work tomorrow which is how it is i guess lol oh well
