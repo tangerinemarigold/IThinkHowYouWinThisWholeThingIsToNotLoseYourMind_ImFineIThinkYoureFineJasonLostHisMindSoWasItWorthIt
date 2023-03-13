@@ -45,6 +45,6 @@ i was laughing at my jokes while i was running errands over the weekend, alone i
 
 how did i even come up with this. it just comes to me, i cant expain it. hey, i might not have an actual audience but im making myself laugh so it must be alright, i have no idea. this dude is such a loser i have no words any more for jason. but i do have more words, dont worry.
 
-
+i dunno if youre sad but everything that happened, happened the way it was suppose to and for a reason: we have years upon years of evidence. :)
 
 done with work, more work tomorrow which is how it is i guess lol oh well
