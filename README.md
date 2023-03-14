@@ -54,3 +54,6 @@ done with work, more work tomorrow which is how it is i guess lol oh well
 take me out already im so bored, everyday [dreams WE saw with eyes open](https://raw.githubusercontent.com/tangerinemarigold/IThinkHowYouWinThisWholeThingIsToNotLoseYourMind_ImFineIThinkYoureFineJasonLostHisMindSoWasItWorthIt/main/Screen%20Shot%202023-03-13%20at%2010.46.19%20PM.png) :heart_eyes: :kissing_heart: :kissing_closed_eyes:
 
 do you know this song is about being really young, with no care in the world, and everything is possible, i love it <3
+
+:kissing_heart: if youre sad, dont be sad. :kissing_heart: everything that happened ... happened, mistakes and all, but everything will be presented in front of a judge. __we have a phenomenal case.__ it only keeps getting stronger. and then hopefully this would fuel laws/regulation so things like this never happen to other people.
+dont be sad at all. not even for a second. be like me, laugh out loud. :) :kissing_heart:
