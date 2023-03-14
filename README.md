@@ -67,3 +67,9 @@ __every day is miserable for jason, dont forget this fact. its just pure misery.
 dont be sad at all.
 
 but ... it is very boring to be without you though :kissing_heart:
+
+you know jason is going to BEG me/us to not take this to court. those days are also coming. maybe thats whats keeping him going, the smallest of hope that i/we would say "oh it was just a mistake" yeah not a chance you hillbilly incel loser. dont even waste time dreaming about it.
+
+so thats why hes stalking us, he wants to know how far am i going to take this. to the absolute edge of the universe if i have to. gfy.
+
+im never ever ever going to stop. every single word, down to every letter as evidence is going to annihilate him in court.
