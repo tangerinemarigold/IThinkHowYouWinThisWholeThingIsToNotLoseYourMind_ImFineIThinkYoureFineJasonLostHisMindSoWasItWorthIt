@@ -51,6 +51,6 @@ every single thing that happened, we can use in our case. every. single. thing. 
 
 done with work, more work tomorrow which is how it is i guess lol oh well
 
-take me out already im so bored, everyday :heart_eyes: :kissing_heart: :kissing_closed_eyes:
+take me out already im so bored, everyday [dreams WE saw with eyes open](https://raw.githubusercontent.com/tangerinemarigold/IThinkHowYouWinThisWholeThingIsToNotLoseYourMind_ImFineIThinkYoureFineJasonLostHisMindSoWasItWorthIt/main/Screen%20Shot%202023-03-13%20at%2010.46.19%20PM.png) :heart_eyes: :kissing_heart: :kissing_closed_eyes:
 
 do you know this song is about being really young, with no care in the world, and everything is possible, i love it <3
