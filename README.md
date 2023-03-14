@@ -57,7 +57,13 @@ take me out already im so bored, everyday [dreams WE saw with eyes open](https:/
 do you know this song is about being really young, with no care in the world, and everything is possible, i love it <3
 
 :kissing_heart: if youre sad, dont be sad. :kissing_heart: everything that happened ... happened, mistakes and all, but everything will be presented in front of a judge. __we have a phenomenal case.__ it only keeps getting stronger. and then hopefully this would fuel laws/regulation so things like this never happen to other people.
+
 dont be sad at all. not even for a second. be like me, laugh out loud. :) :kissing_heart:
-the judge is only going to get disgusted, its just a continuum of descent into __infinte miserable failure__ for jason and his team which will dwindle considerably by the time it comes to face the judge, people/his legal team will jump ship, he has no case whatsoever. so it only will get sadder for him. __every day is miserable for jason, dont forget this fact. its just pure misery.__
+
+the judge is only going to get disgusted, its just a continuum of descent into __infinte miserable failure__ for jason and his team which will dwindle considerably by the time it comes to face the judge, people/his legal team will jump ship, he has no case whatsoever. so it only will get sadder for him. i get to tell the judge that i/we dont know jason LOL we dont know wtf he wants from me/us. and that he needs a psych evaluation (i dont know if thats possible) and a drug test.
+
+__every day is miserable for jason, dont forget this fact. its just pure misery.__
+
 dont be sad at all.
+
 but ... it is very boring to be without you though :kissing_heart:
